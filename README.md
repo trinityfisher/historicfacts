@@ -1,1 +1,1 @@
-Christopher Columbus reached the Americas in 1492, initiating European exploration and colonization.
+Brexit, the United Kingdom's withdrawal from the European Union, was officially completed on January 31, 2020.
