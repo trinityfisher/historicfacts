@@ -1,1 +1,1 @@
-Michelangelo completed the ceiling of the Sistine Chapel in 1512.
+The invention of the telephone by Alexander Graham Bell in 1876 revolutionized communication.
