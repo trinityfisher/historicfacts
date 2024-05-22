@@ -1,1 +1,1 @@
-The invention of the telephone by Alexander Graham Bell in 1876 revolutionized communication.
+The Hundred Years' War between England and France lasted from 1337 to 1453.
