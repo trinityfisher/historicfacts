@@ -1,1 +1,1 @@
-The Hundred Years' War between England and France lasted from 1337 to 1453.
+The invention of the telescope by Galileo Galilei in the early 17th century revolutionized astronomy.
