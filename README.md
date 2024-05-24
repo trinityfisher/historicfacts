@@ -1,1 +1,1 @@
-The invention of the telescope by Galileo Galilei in the early 17th century revolutionized astronomy.
+The Code of Hammurabi, one of the earliest known sets of laws, dates back to around 1754 BC.
