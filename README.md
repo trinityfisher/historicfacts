@@ -1,1 +1,1 @@
-The Code of Hammurabi, one of the earliest known sets of laws, dates back to around 1754 BC.
+The Cuban Missile Crisis in 1962 brought the world to the brink of nuclear war between the United States and the Soviet Union.
