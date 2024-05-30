@@ -1,1 +1,1 @@
-The collapse of Lehman Brothers in 2008 triggered a global financial crisis.
+The September 11 attacks in 2001 reshaped global politics and led to the War on Terror. 
