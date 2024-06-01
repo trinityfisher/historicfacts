@@ -1,1 +1,1 @@
-The Russian Revolution in 1917 led to the overthrow of the Tsarist autocracy and the establishment of the Soviet Union.
+The invention of the telephone by Alexander Graham Bell in 1876 revolutionized communication.
