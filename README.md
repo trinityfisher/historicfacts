@@ -1,1 +1,1 @@
-The invention of the telephone by Alexander Graham Bell in 1876 revolutionized communication.
+The Berlin Wall, symbolizing the division between East and West during the Cold War, was erected in 1961 and fell in 1989.
