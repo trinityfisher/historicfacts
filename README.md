@@ -1,1 +1,1 @@
-The Chernobyl nuclear disaster in 1986, one of the worst nuclear accidents in history, had far-reaching environmental and health consequences.
+The COVID-19 pandemic, caused by the novel coronavirus, emerged in late 2019 and led to a global health crisis.
