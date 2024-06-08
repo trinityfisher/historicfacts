@@ -1,1 +1,1 @@
-The Crusades, a series of religious wars, took place between the 11th and 13th centuries.
+The Arab Spring, a wave of protests and uprisings, began in late 2010.
