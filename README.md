@@ -1,1 +1,1 @@
-The Arab Spring, a wave of protests and uprisings, began in late 2010.
+Shakespeare wrote his renowned play "Romeo and Juliet" around 1595.
