@@ -1,1 +1,1 @@
-The ancient city of Rome was founded in 753 BC.
+Johannes Gutenberg invented the printing press around 1440, revolutionizing the spread of information.
