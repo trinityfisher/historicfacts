@@ -1,1 +1,1 @@
-The invention of the telescope by Galileo Galilei in the early 17th century revolutionized astronomy.
+The September 11 attacks in 2001 reshaped global politics and led to the War on Terror. 
