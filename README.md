@@ -1,1 +1,1 @@
-The September 11 attacks in 2001 reshaped global politics and led to the War on Terror. 
+The Berlin Wall, symbolizing the division between East and West during the Cold War, was erected in 1961 and fell in 1989.
