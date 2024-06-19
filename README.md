@@ -1,1 +1,1 @@
-The ancient Egyptian pharaoh Tutankhamun's tomb was discovered in 1922 by archaeologist Howard Carter.
+The collapse of Lehman Brothers in 2008 triggered a global financial crisis.
