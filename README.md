@@ -1,1 +1,1 @@
-The collapse of Lehman Brothers in 2008 triggered a global financial crisis.
+The Arab Spring, a wave of protests and uprisings, began in late 2010.
