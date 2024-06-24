@@ -1,1 +1,1 @@
-The Arab Spring, a wave of protests and uprisings, began in late 2010.
+The invention of the movable-type printing press by Johannes Gutenberg around 1440 revolutionized the spread of information in Europe.
