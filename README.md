@@ -1,1 +1,1 @@
-The invention of the movable-type printing press by Johannes Gutenberg around 1440 revolutionized the spread of information in Europe.
+The Treaty of Tordesillas in 1494 divided the newly discovered lands outside Europe between Spain and Portugal.
