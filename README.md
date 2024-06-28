@@ -1,1 +1,1 @@
-The Treaty of Tordesillas in 1494 divided the newly discovered lands outside Europe between Spain and Portugal.
+Johannes Gutenberg invented the printing press around 1440, revolutionizing the spread of information.
