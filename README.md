@@ -1,1 +1,1 @@
-Johannes Gutenberg invented the printing press around 1440, revolutionizing the spread of information.
+The invention of the steam engine by James Watt in 1769 paved the way for mechanized transportation and industry.
