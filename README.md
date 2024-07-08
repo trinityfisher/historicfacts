@@ -1,1 +1,1 @@
-World War I, also known as the Great War, lasted from 1914 to 1918.
+The collapse of Lehman Brothers in 2008 triggered a global financial crisis.
