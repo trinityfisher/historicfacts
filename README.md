@@ -1,1 +1,1 @@
-The collapse of Lehman Brothers in 2008 triggered a global financial crisis.
+The ancient city of Babylon, famous for the Hanging Gardens, thrived around 1800 BC.
