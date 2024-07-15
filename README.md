@@ -1,1 +1,1 @@
-The invention of the movable-type printing press by Johannes Gutenberg around 1440 revolutionized the spread of information in Europe.
+The Industrial Revolution began in Britain in the late 18th century, transforming economies and societies worldwide.
