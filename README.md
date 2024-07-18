@@ -1,1 +1,1 @@
-The Industrial Revolution began in Britain in the late 18th century, transforming economies and societies worldwide.
+The Chernobyl nuclear disaster in 1986, one of the worst nuclear accidents in history, had far-reaching environmental and health consequences.
