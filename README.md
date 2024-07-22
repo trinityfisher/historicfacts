@@ -1,1 +1,1 @@
-The Chernobyl nuclear disaster in 1986, one of the worst nuclear accidents in history, had far-reaching environmental and health consequences.
+The invention of the steam engine by James Watt in 1769 paved the way for mechanized transportation and industry.
