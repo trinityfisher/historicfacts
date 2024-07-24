@@ -1,1 +1,1 @@
-The first modern Olympics were held in Athens, Greece, in 1896.
+The Arab Spring, a wave of protests and uprisings, began in late 2010.
