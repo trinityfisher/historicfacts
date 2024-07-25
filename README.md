@@ -1,1 +1,1 @@
-The Arab Spring, a wave of protests and uprisings, began in late 2010.
+The Great Pyramid of Giza was built around 2560 BC.
