@@ -1,1 +1,1 @@
-The Great Pyramid of Giza was built around 2560 BC.
+The dropping of atomic bombs on Hiroshima and Nagasaki in 1945 marked the end of World War II.
