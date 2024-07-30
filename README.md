@@ -1,1 +1,1 @@
-The dropping of atomic bombs on Hiroshima and Nagasaki in 1945 marked the end of World War II.
+The COVID-19 pandemic, caused by the novel coronavirus, emerged in late 2019 and led to a global health crisis.
