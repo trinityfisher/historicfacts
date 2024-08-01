@@ -1,1 +1,1 @@
-The ancient Egyptian pharaoh Tutankhamun's tomb was discovered in 1922 by archaeologist Howard Carter.
+The Treaty of Tordesillas in 1494 divided the newly discovered lands outside Europe between Spain and Portugal.
