@@ -1,1 +1,1 @@
-The Treaty of Tordesillas in 1494 divided the newly discovered lands outside Europe between Spain and Portugal.
+The Viking explorer Leif Erikson is believed to have reached North America around the year 1000, predating Christopher Columbus.
